@@ -1,0 +1,1 @@
+Hi! I come back. This is a bot for discord. Get 
